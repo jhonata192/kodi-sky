@@ -1,2 +1,0 @@
-# kodi-sky
-APLICATIVOS E ATUALIZAÇÕES
